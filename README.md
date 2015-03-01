@@ -9,7 +9,7 @@ Even a not very bright viewer will probably quickly realise that the train repre
 classes, i.e. the elite at the front of the train and the poor at the tail end. But there are many details, either within single wagons, or among the characters which tell us more than just this simple message. Therefore I'd conduct my analysis on two different levels, analysing single wagons and then single characters and of course their role within the train.
 
 Before jumping inside the train at the beginning of the movie there's a view from a frozen car. The camera
-focuses on a pendant hanging from the mirror with words written on it "Save the world", which reminds me a lot of the tree of life from Ka bbala. Maybe it's just a coincidence, have a look for yourself.
+focuses on a pendant hanging from the mirror with words written on it "Save the world", which reminds me a lot of the tree of life from Kabbalah. Maybe it's just a coincidence, have a look for yourself.
 
 As already said, at the tail of the train we find the poor. Among the poor there are 2 important characters. First is Curtis (Chris Evans), second is Gilliam (John Hurt.) So let's start with these two guys.
 
